@@ -1,3 +1,3 @@
-to write pizza/spaggetti sauce recipy. and to practice my curent knowledge
+to write pizza/spaggetti sauce recipe. and to practice my curent knowledge
 on html
 
